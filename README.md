@@ -38,6 +38,8 @@ EJERCICIO 9
 
 EJERCICIO 10
 ![image](https://github.com/user-attachments/assets/38178d33-beeb-4861-8b37-a0177037d087)
+![image](https://github.com/user-attachments/assets/e354edbf-9794-405a-8c36-c6ba24aec58c)
+
 
 
 
